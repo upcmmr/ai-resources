@@ -1,1 +1,7 @@
-# ai-resources
+# AI Resources 
+
+YouTube
+
+Podcast
+
+Web
